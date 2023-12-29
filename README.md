@@ -23,5 +23,18 @@ https://privacy.apple.com/ 에 가서 애플뮤직 데이터 받기(일주일 �
 
 ### 기존 APPLE MUSIC 2023 RECAP
 
+![KakaoTalk_20231229_171205291](https://github.com/gajaeup/2023-APPLE-MUSIC-RECAP/assets/105265427/aeac55e3-bdda-451f-a5a6-85f73b52132a)
+
+![KakaoTalk_20231229_171204940](https://github.com/gajaeup/2023-APPLE-MUSIC-RECAP/assets/105265427/bdcc984a-8cec-488e-82e0-b035dbcdf658)
+
+![KakaoTalk_20231229_171204593](https://github.com/gajaeup/2023-APPLE-MUSIC-RECAP/assets/105265427/cc31505d-cb9c-4e3e-a002-9fb7dea5417b)
 
 
+### AFTER
+
+![애플뮤직 분석1_5](https://github.com/gajaeup/2023-APPLE-MUSIC-RECAP/assets/105265427/64241283-cd71-4281-b3a1-c8b0e4d96a7d)
+
+
+![애플뮤직 분석6_10](https://github.com/gajaeup/2023-APPLE-MUSIC-RECAP/assets/105265427/d6af05c3-7ca5-4ded-a9a7-20f1ee53fbbe)
+
+![애플뮤직 분석11_15](https://github.com/gajaeup/2023-APPLE-MUSIC-RECAP/assets/105265427/26e6acfe-6e72-47cf-83da-349bc926e97c)
