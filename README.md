@@ -64,3 +64,9 @@ https://privacy.apple.com/ 에 가서 애플뮤직 데이터 받기(일주일 �
 2023에 비교해서 가중치 수정
 
 
+### 기존 APPLE MUSIC 2024 RECAP
+<img src="https://github.com/user-attachments/assets/4207a417-2ecf-45ef-94ce-799016fd6676" width="50%">
+
+
+### AFTER
+<img src="https://github.com/user-attachments/assets/ff78e4c9-722d-4bb4-80eb-33338549f691" width="50%">
