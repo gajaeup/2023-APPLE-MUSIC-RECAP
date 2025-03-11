@@ -69,4 +69,4 @@ https://privacy.apple.com/ 에 가서 애플뮤직 데이터 받기(일주일 �
 
 
 ### AFTER
-<img src="https://github.com/user-attachments/assets/ff78e4c9-722d-4bb4-80eb-33338549f691" width="50%">
+<img src="https://github.com/user-attachments/assets/f718841e-95de-4d5f-be4f-77b7360c2e2a" width="50%">
